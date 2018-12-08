@@ -1,2 +1,0 @@
-# absnote.com
-absnote.com
